@@ -8,3 +8,4 @@
  Air at rest such as in glass or rock wool is kept ay rest in a structure of fibers and vacancies.
  Such a structure is extensive to store.
  
+30 mm is far less air thickness, but the air will be transfering convection heat while being heated by the water and being cooled down by de colder environmental air
