@@ -8,3 +8,4 @@
  Air at rest such as in glass or rock wool is kept ay rest in a structure of fibers and vacancies.
  Such a structure is extensive to store.
  
+Although heat will be transfered in the air mattress, the layer being quite thick will have a good insulation value. An apparent advantage is it consisting of only 2 sheets that are not necessarily interconnected
